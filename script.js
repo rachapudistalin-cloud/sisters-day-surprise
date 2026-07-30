@@ -287,6 +287,7 @@ stay strong,
 and always remember...
 
 You'll always have a brother who cares about you alot and stand beside u what may the situation comes.
+You're not only my sister, you're my best friend and confidant tooo..❤️
 Happy Friendship Day.
 Happy Sisters Day, 
 To my supportive, loving, caring, and the best sister in the world ,
