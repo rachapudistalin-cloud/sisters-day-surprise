@@ -82,7 +82,7 @@ const sceneMessages = [
 
     "Sometimes...",
 
-    "people enter our lives...",
+    "people enter our lifes...",
 
     "without us realizing...",
 
