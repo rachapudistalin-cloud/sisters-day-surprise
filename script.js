@@ -271,6 +271,11 @@ u never let me down , u always supported me like no other did, u r like a pillar
 even though niku enni pbl unna u cares about me , am soo soo greatfull to u for being beside me in every though situation🫂.
 U r the best one i won in life.
 I don't wanna lose u in my life, u r the one who makes me happy and my sis forever❤️.
+Don't trust blindly anyone especially in clg , choose ppl wisely thalli.. even though girls..
+character ni wrong cheyadaniki min kuda patadhu , Becareful maaa
+I Hope u succed everything in life and achieve all your dreams and goals, and get all the deservable things in life.
+I will always be there to support you in every situation❤️🫂.
+
 
 You have always been one of the most precious person in my life.
 
