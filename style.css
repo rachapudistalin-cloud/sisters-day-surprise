@@ -43,8 +43,7 @@ body{
 
     inset:0;
 
-    background:
-    radial-gradient(circle at top,#41295a 0%,#050816 55%);
+   background:url("https://thumbs.dreamstime.com/b/macaque-monkey-sits-wooden-fence-post-zhangjiajie-china-mokey-pole-341130270.jpg") center center/cover no-repeat;
 
     z-index:-5;
 
