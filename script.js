@@ -265,6 +265,7 @@ Some people come into our lives unexpectedly,
 yet they leave the biggest impact.
 
 Its have being 5-6 yrs since we met,inni yrs ayina chinapati laga ipudu kuda entha cute ga chinna papa laagaa unaav telsa.
+Firstlyyyy Thankyouuuu Thankyouuuu Thankyouuuu soooo muchhhh thalliii for being there beside me in every situation especially in my lower times🫂.
 U r the person who stayed with me through thick and thin, and I am grateful for every moment u stayed with me❤️. 
 Andaru nanni odilestuna kuda u told "nen unna kada",even nen mistakes chestuna kuda i don't even know how to thank you thalli.
 u never let me down , u always supported me like no other did, u r like a pillar to me 
